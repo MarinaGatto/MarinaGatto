@@ -1,8 +1,6 @@
 - 👋 oi sou a @MarinaGatto
-- 👀 I’m interested in ...
+- 👀 Criadora de jogos de tabuleiro e lutando pela floresta Amazonica
 - 🌱 Filha do Amazonas e do rio Uatuma
-- 💞️
-- 📫 
 - 😄 Ela/Dela
 - ⚡ Fun fact: Ganhadora do Melhor jogo de Sustentabilidade da Gj+
 
